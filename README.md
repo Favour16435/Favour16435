@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Favour16435
 - 👀 I’m interested in web Dev and Graphic design
 - 🌱 I’m currently learning graphic design
-- 💞️ I’m looking to collaborate on with like mi Na D's 
+- 💞️ I’m looking to collaborate on with like minds 
 - 📫 How to reach me Facebook:Comr cajetan odinakachi
 Instagram: Mhiz Love
 
